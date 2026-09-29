@@ -1,4 +1,4 @@
-<img width="447" height="447" alt="BESPIN" src="https://github.com/user-attachments/assets/9ba468f5-bec5-45e3-93ad-17d1206979af" />
+<img width="1200" height="675" alt="bespinglobal_og" src="https://github.com/user-attachments/assets/de222096-e465-4807-8451-5be71fd11b3e" />
 
 <br>
 
